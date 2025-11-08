@@ -1,4 +1,4 @@
-## 必读!!!
+## 必读!!! [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/Q5Q41MTGJW)
 
 1. 按分类目录存储,分享出来的链接是整个分类目录的,每本书往上的第一个链接就是
 
